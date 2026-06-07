@@ -1,0 +1,1 @@
+# aire-acondicionado-regimen-transitorio
